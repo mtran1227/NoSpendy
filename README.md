@@ -1,2 +1,2 @@
-# Trippie
-find a tripbestie through Trippie.
+# NoSpendy
+"Who can stay the richest while spending the least? Let the broke battle begin!" 💸🔥
